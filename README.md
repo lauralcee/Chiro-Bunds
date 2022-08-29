@@ -1,1 +1,3 @@
-# Chiro-Bunds
+# Chiro-Bundy
+Our [Chiro Bundy](https://www.aaronchiropracticcentre.com/chiropractor-bundaberg) are passionate about the vital role your spine plays in your overall health and are committed to working with you in achieving your desired health outcomes. Each of our chiropractors is highly skilled in assessing the function of the spine and nervous system, and work to restore proper function and symmetry of the spine using a variety of techniques that safely suit patients across all age groups. These spinal manipulations, or ‘adjustments’ to misaligned vertebrae known as subluxations can relieve stress on the nervous system which may lead to improvement of symptoms and overall function within the body.
+
